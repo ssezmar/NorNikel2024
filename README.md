@@ -48,3 +48,4 @@
 ---
 
 #### Еще раз благодарим за Вашу работу и внимание к нашему проекту!  
+https://drive.google.com/drive/u/0/folders/1I2HC2-A2pjqDL7xBjV8Kbo4Hh74EQW0V - ссылка на диск
